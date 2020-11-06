@@ -1,0 +1,1 @@
+# odberne-miesta-Ko-ice
